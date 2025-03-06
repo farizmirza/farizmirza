@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on many project
 - 📫 How to reach me find on instagram @farizmirzaabd
 - 😄 Pronouns: he
-- ⚡ Fun fact: I am an artist
+- ⚡ Fun fact: I am an illustrator too
 
 <!---
 farizmirza/farizmirza is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
